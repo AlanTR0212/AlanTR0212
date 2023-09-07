@@ -5,7 +5,7 @@
 
 - 🔭 Actualmente estoy trabajando en **REAL MADRID FC**
 
-- 🌱 Actualmente estoy aprendiendo **CLASESE DE RIVALDIOS* *
+- 🌱 Actualmente estoy aprendiendo **CLASES DE RIVALDIOS* *
 
 - 👯 Busco colaborar en **LEO MESSI**
 
